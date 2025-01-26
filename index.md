@@ -1,4 +1,7 @@
 ---
-title: Welcome to my blog
+title: Piercing
 ---
 
+Whatsapp
+Catálogo
+Loja online
